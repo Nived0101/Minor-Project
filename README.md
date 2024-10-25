@@ -1,1 +1,0 @@
-# Naye-Pankh
